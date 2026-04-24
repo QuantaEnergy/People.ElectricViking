@@ -1,0 +1,2 @@
+- [BYD's Chief Scientist Reveals The TRUTH On Solid State Battery Predictions](https://youtu.be/OXAQtpsFe7s)
+- [The Donut Lab Battery Claims vs Reality: Why Experts Say It Can’t Exist](https://youtu.be/cSysUN_7fRg)
