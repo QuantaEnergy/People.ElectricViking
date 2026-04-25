@@ -1,0 +1,1 @@
+- [Lithium Battery Pack Prices Crash - Legacy auto is about to be crushed](https://youtu.be/sO3FhlHurqM)
