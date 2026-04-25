@@ -1,0 +1,1 @@
+- [Battery Expert reveals why he invested MILLIONS into this Critical Battery Mineral](https://youtu.be/FIjRpfZu4Ss)
