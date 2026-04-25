@@ -1,0 +1,1 @@
+- [U.S company reveals revolutionary battery that DESTROYS sodium & lithium](https://youtu.be/C675sr3jqIY)
