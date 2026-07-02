@@ -1,1 +1,1 @@
-- [10,000x CHEAPER - Why Every Solar Forecast Since 2015 Has Been Wrong](https://youtu.be/rE0BMngClqo/
+- [10,000x CHEAPER - Why Every Solar Forecast Since 2015 Has Been Wrong](https://youtu.be/rE0BMngClqo)
