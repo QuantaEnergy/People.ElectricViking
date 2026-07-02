@@ -1,0 +1,1 @@
+- [How To Buy Battery Cells Directly From CATL (Without A Million-Dollar Contract!)](https://youtu.be/Mj-q0NXjr2c)
