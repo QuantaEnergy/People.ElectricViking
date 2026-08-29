@@ -1,1 +1,1 @@
-- [2000 Mile Range: CATL Announce a 12,000 Wh/kg Battery That Will Kill Gasoline](
+- [2000 Mile Range: CATL Announce a 12,000 Wh/kg Battery That Will Kill Gasoline](https://youtu.be/4w8Bd4upITE)
