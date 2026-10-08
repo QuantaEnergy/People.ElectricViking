@@ -5,3 +5,5 @@
 - [Goodbye Lithium! New 3,600,000 Mile EV Battery costs 50% LESS](https://youtu.be/U3Qx9EoW_ek)
 - [BYD's $20 Battery Just Killed the Last Argument Against Renewables](https://youtu.be/DT2CHuNJKjU)
 - [261 Wh/kg & 20,000 Cycles — VW's Secret Weapon Is a Sodium-Ion Battery](https://youtu.be/i12FYaF7a_Y)
+- [The 10 Sodium Batteries Actually in Production in 2026, Ranked](https://youtu.be/muOrQURcBHs)
+- [
